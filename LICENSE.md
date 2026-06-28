@@ -1,4 +1,4 @@
-# 
+# VIP birdeye sniper bot قوالب لـ Mac OS | أصلي birdeye sniper bot قوالب لـ PC Windows. مع أوامر السوق و التحكم في الانزلاق — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
